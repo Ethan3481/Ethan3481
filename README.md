@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ethan348
 - 👀 I’m interested in ... Graphics Designing / Animation / Video Editing
-- 🌱 I’m currently pursuing ... Computer Science Engineering
+- 🌱 I’m currently pursuing ... Bachelor in Computer Science Engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... Ethan348#9334 (Discord)
+- 📫 How to reach me ... Ethan348#9334 (Discord) 
